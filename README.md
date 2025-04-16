@@ -1,1 +1,1 @@
-Soy hincha de velez # AED
+# AED
